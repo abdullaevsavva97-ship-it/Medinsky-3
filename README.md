@@ -1,1 +1,0 @@
-# Medinsky-3
